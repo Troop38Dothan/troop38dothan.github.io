@@ -8,10 +8,10 @@ categories: CAMPOUTS
 change baffled many people, the reason why it exists does not.
 There are many purposes of it including explaining skills, demonstrating these skills,
 guiding them to a better path, and enabling Cub Scouts to succeed.
-    The purpose of scouting 101 is to show Weblos and Arrow of Lights what being in a
-Scouts BSA Troop is like. It also teaches them how to be a better Cub Scout and person.
+    The purpose of Scouting 101 is to show Weblos and Arrow of Lights what being in a
+Scouts BSA Troop is like. It also teaches Cub Scouts about nature and camping.
 It teaches them how to retire the flag of the United States with honor.
-    In Scouting 101 the arrow of lights are put into patrols. The way of teaching these patrols
+    In Scouting 101 the Arrow of Lights are put into patrols. The way of teaching these patrols
 is through rotations. For example while one patrol is in a class about orienteering while another
 patrol is learning about weather apps. This also fits extremely well with meals and ceremonies.
     There are many different activities in Scouting 101. There are classes, ceremonies, and meals.
